@@ -4,6 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffabcb&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&redirect=true)
 
+(i actually use soundcloud more often so this is literally here for decoration but who cares)
+
 [𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://angel-mizu.straw.page/)♡[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://tangleduplove.atabook.org/)♡[𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@ribbonyunnieyun)♡[𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐜𝐜](https://pronouns.cc/@dolitamia)♡[𝐠𝐮𝐧𝐬.𝐥𝐨𝐥](https://guns.lol/ribbonyunyun)
 
 [𝐚𝐢𝐝𝐞𝐧!! 𝐦𝐲 𝐛𝐫𝐨𝐭𝐡𝐞𝐫!!](https://github.com/KARSGOBOOM)![1000025704](https://github.com/user-attachments/assets/0d19439c-e2be-4677-a919-6a1280d9715c)
