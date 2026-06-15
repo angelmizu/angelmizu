@@ -1,17 +1,69 @@
-<img width="1280" height="427" alt="1000026312" src="https://github.com/user-attachments/assets/9d1d4fd0-fd51-47c4-a595-c1edfadccb15" />
-" іᥒ һᥲᥣ𝖿 ᑲr᥆kᥱᥒ ȷᥲ⍴ᥲᥒᥱsᥱ, і ᥕr᥆𝗍ᥱ 𝗍᥆ ᥡ᥆ᥙ, "᥆һ ᥲіsһі𝗍ᥱrᥙ, ᥆һ ᥲіsһі𝗍ᥱrᥙ" ♡ "
-<img width="400" height="80" alt="1000026324" src="https://github.com/user-attachments/assets/da88906e-b2e3-4d9a-934e-e832b17ba82d" />
+<img width="736" height="100" alt="1000026428" src="https://github.com/user-attachments/assets/efda70c9-c5c3-4fae-b220-1284b509ed6e" />
+<img width="1280" height="87" alt="1000026446" src="https://github.com/user-attachments/assets/259355f1-788e-4abb-b388-b474ff998bdc" />
 
-[s𝗍rᥲᥕ⍴ᥲgᥱ](https://rulerofherheart.straw.page)<img width="20" height="20" alt="1000026137" src="https://github.com/user-attachments/assets/2c645d8f-180f-4972-8f0b-5e0cc0a839fd" />
-[gᥙᥒs.ᥣ᥆ᥣ](https://guns.lol/ribbonyunyun)<img width="20" height="20" alt="1000026137" src="https://github.com/user-attachments/assets/28e19188-566d-4081-8d87-beca99fdbc33" />[⍴r᥆ᥒ᥆ᥙᥒs⍴ᥲgᥱ](https://en.pronouns.page/@ribbonyunnieyun)<img width="20" height="20" alt="1000026137" src="https://github.com/user-attachments/assets/c86b7c94-6cc5-4ce9-bb4c-322fc8b48b6a" />[⍴r᥆ᥒ᥆ᥙᥒs.ᥴᥴ](https://pronouns.cc/@dolitamia)<img width="20" height="20" alt="1000026137" src="https://github.com/user-attachments/assets/4191500a-94dd-4dd3-839e-1d15e65e8fbd" />[⍴іᥒ𝗍ᥱrᥱs𝗍](https://pin.it/172ReQT7l)<img width="20" height="20" alt="1000026137" src="https://github.com/user-attachments/assets/1fcf689d-352a-487d-ba1e-90c5cfbf5f1f" />[rᥱᥒ𝗍rᥡ](https://rentry.co/mizu-aki) 
+<p align="center"> <img width="20" height="20" alt="1000026452" src="https://github.com/user-attachments/assets/ce02ddd0-846b-4009-8660-e355af3d3a3a" />
+⋆౨ৎ˚⟡˖ ࣪ " 𝕒𝕓𝕔𝕤 𝕒𝕟𝕕 𝟙𝟚𝟛𝕤, 𝕦 𝕒𝕟𝕕 𝕞𝕖 𝕒𝕣𝕖 𝕞𝕖𝕒𝕟𝕥 𝕥𝕠 𝕓𝕖!! ^_^ " ⋆. 𐙚 ˚ <img width="20" height="20" alt="1000026451" src="https://github.com/user-attachments/assets/b50e8bd6-e7aa-4f40-8d4f-37c8cfd8f8bd" />
 
+ <img width="20" height="20" alt="1000026081" src="https://github.com/user-attachments/assets/dcf73d62-b813-4a62-9e84-c4488be1c8b7" />  [𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/mizu-aki)🐾[𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒑𝒂𝒈𝒆](https://en.pronouns.page/@__D0GGIE.M1ZU)🐾[𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@dolitamia)🐾[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://tangleduplove.atabook.org/)🐾[𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://rulerofherheart.straw.page/)🐾[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/ribbonyunyun) 
 
-<img width="512" height="48" alt="1000026310" src="https://github.com/user-attachments/assets/cb8fff4d-a7dd-4754-8561-d49fa5e51eb9" />
+<br><br>
 
+<table>
+<tr>
+<td width="300">
 
+<img width="736" height="736" alt="1000026374" src="https://github.com/user-attachments/assets/c7b9b329-b49d-494b-8d43-ea4910a8c6ed" />
+</td>
+<td>
 
-<img width="101" height="57" alt="1000026046" src="https://github.com/user-attachments/assets/bed36474-1e9e-4f2a-80f8-f68761b5c0e1" />
-<img width="99" height="56" alt="1000026027" src="https://github.com/user-attachments/assets/1c74ca29-6710-47a6-9321-eab30aa70faa" />
+ᥡᥙᥒᥒіᥱ / mіzᥙkі!! 
 
+- ᥣᥱsᑲіᥲᥒ, ᥊ᥱᥒ᥆gᥱᥒძᥱr
+- 𝗍ᥲkᥱᥒ
+- mіzᥙkі kіᥒᥒіᥱ
+  
+</td>
+</tr>
+</table>
 
-[mᥡ ᑲᥱᥲᥙ𝗍і𝖿ᥙᥣ mᥲ𝖿ᥙᥡᥙ <3](https://github.com/DEADINS0MNIA) 
+ <!-- CLICK THE ARROW -->
+<p align="center">
+
+<details>
+<summary>
+
+<p align="center">
+𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔!!!!!!! (𝒄𝒍𝒊𝒄𝒌 𝒕𝒉𝒆 𝒂𝒓𝒓𝒐𝒘) 
+</p>
+
+</summary>
+
+<div align="center">
+
+[@DEADINS0MNIA (wife)](https://github.com/DEADINS0MNIA) 
+
+[@tunafishyy](https://github.com/tunafishyy) 
+
+[@puppylawrie](https://github.com/puppylawrie) 
+
+[@sakasamagirlfeeling](https://github.com/sakasamagirlfeeling) 
+
+[@yokumallow](https://github.com/yokumallow) 
+
+[@zippytie](https://github.com/zippytie)
+
+[@enakana](https://github.com/enakana) 
+
+[@harukiiame](https://github.com/harukiiame) 
+
+[@nerdeater](https://github.com/nerdeater) 
+
+[@tearsofgarnet78](https://github.com/tearsofgarnet78) 
+
+[@KARSGOBOOM](https://github.com/KARSGOBOOM)
+
+[@dexpilled](https://github.com/dexpilled) 
+
+<br><br>
+
+![1000026432](https://github.com/user-attachments/assets/7c42c03f-807b-4ef8-8df0-eb1b590b4cbf)
