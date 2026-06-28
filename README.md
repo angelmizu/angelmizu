@@ -1,71 +1,12 @@
-<img width="736" height="100" alt="1000026428" src="https://github.com/user-attachments/assets/efda70c9-c5c3-4fae-b220-1284b509ed6e" />
-<img width="1280" height="87" alt="1000026446" src="https://github.com/user-attachments/assets/259355f1-788e-4abb-b388-b474ff998bdc" />
+<img width="735" height="697" alt="1000027060" src="https://github.com/user-attachments/assets/e1addb18-af99-42aa-b14a-10ce31b8da3c" />
+<img width="48" height="18" alt="1000027063" src="https://github.com/user-attachments/assets/992463cf-c230-441d-a45c-be903ed83b72" /> <img width="68" height="18" alt="1000027062" src="https://github.com/user-attachments/assets/76a9aec3-d317-42ff-97da-e2f44a5fa373" /> <img width="54" height="18" alt="1000027065" src="https://github.com/user-attachments/assets/b929807e-a3ac-444c-aebc-37bc4252e2fe" />
+<img width="42" height="18" alt="1000027064" src="https://github.com/user-attachments/assets/c2ac5c79-fa41-411c-bef9-295dcf6b6903" />
 
-<p align="center"> <img width="20" height="20" alt="1000026452" src="https://github.com/user-attachments/assets/ce02ddd0-846b-4009-8660-e355af3d3a3a" />
-⋆౨ৎ˚⟡˖ ࣪ " 𝕒𝕓𝕔𝕤 𝕒𝕟𝕕 𝟙𝟚𝟛𝕤, 𝕦 𝕒𝕟𝕕 𝕞𝕖 𝕒𝕣𝕖 𝕞𝕖𝕒𝕟𝕥 𝕥𝕠 𝕓𝕖!! ^_^ " ⋆. 𐙚 ˚ <img width="20" height="20" alt="1000026451" src="https://github.com/user-attachments/assets/b50e8bd6-e7aa-4f40-8d4f-37c8cfd8f8bd" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B3BC&width=435&lines=run+rabbit%2C+run+rabid..;gifts+granted%2C+you've+gone+rancid..;run+rabbit%2C+run+rabid..;walls+padded%2C+drinking+acid..)](https://git.io/typing-svg) <img width="20" height="20" alt="1000027066" src="https://github.com/user-attachments/assets/12d0bdff-f6ca-460e-be7e-ff64ce590f0a" />
 
- <img width="20" height="20" alt="1000026081" src="https://github.com/user-attachments/assets/dcf73d62-b813-4a62-9e84-c4488be1c8b7" />  [𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/mizu-aki)🐾[𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒑𝒂𝒈𝒆](https://en.pronouns.page/@__D0GGIE.M1ZU)🐾[𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@dolitamia)🐾[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://tangleduplove.atabook.org/)🐾[𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://rulerofherheart.straw.page/)🐾[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/ribbonyunyun) 
+[ցմղs.lօl](https://guns.lol/ribbonyunyun) ᰔ [թɾօղօմղs.թαցҽ](https://en.pronouns.page/@__D0GGIE.M1ZU) ᰔ [թɾօղօմղs.cc](https://pronouns.cc/@dolitamia) ᰔ [αԵαճօօk](https://tangleduplove.atabook.org/) ᰔ [sԵɾαաթαցҽ](https://rulerofherheart.straw.page/) 
 
-<br><br>
 
-<table>
-<tr>
-<td width="300">
+i love my mafuyu so much ok i dont give a pink fuck if you think this is corny
 
-<img width="736" height="736" alt="1000026374" src="https://github.com/user-attachments/assets/c7b9b329-b49d-494b-8d43-ea4910a8c6ed" />
-</td>
-<td>
-
-ᥡᥙᥒᥒіᥱ / mіzᥙkі!! 
-
-- ᥣᥱsᑲіᥲᥒ, ᥊ᥱᥒ᥆gᥱᥒძᥱr
-- 𝗍ᥲkᥱᥒ
-- mіzᥙkі kіᥒᥒіᥱ
-  
-</td>
-</tr>
-</table>
-
- <!-- CLICK THE ARROW -->
-<p align="center">
-
-<details>
-<summary>
-
-<p align="center">
-𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔!!!!!!! (𝒄𝒍𝒊𝒄𝒌 𝒕𝒉𝒆 𝒂𝒓𝒓𝒐𝒘) 
-</p>
-
-</summary>
-
-<div align="center">
-
-[@DEADINS0MNIA (wife)](https://github.com/DEADINS0MNIA) 
-
-[@tunafishyy](https://github.com/tunafishyy) 
-
-[@puppylawrie](https://github.com/puppylawrie) 
-
-[@sakasamagirlfeeling](https://github.com/sakasamagirlfeeling) 
-
-[@yokumallow](https://github.com/yokumallow) 
-
-[@zippytie](https://github.com/zippytie)
-
-[@enakana](https://github.com/enakana) 
-
-[@harukiiame](https://github.com/harukiiame) 
-
-[@nerdeater](https://github.com/nerdeater) 
-
-[@tearsofgarnet78](https://github.com/tearsofgarnet78) 
-
-[@KARSGOBOOM](https://github.com/KARSGOBOOM)
-
-[@dexpilled](https://github.com/dexpilled) 
-
-⍴ᥣᥙssss mᥡ ᥆᥆m𝖿s ᥕһ᥆ ძ᥆ᥒ𝗍 һᥲ᥎ᥱ gі𝗍һᥙᑲ , іᥣᥡ gᥙᥡs ᥆k
-
-<br><br>
-
-![1000026432](https://github.com/user-attachments/assets/7c42c03f-807b-4ef8-8df0-eb1b590b4cbf)
+![1000027069](https://github.com/user-attachments/assets/b275192a-89af-4712-9027-e42ab5566507)
