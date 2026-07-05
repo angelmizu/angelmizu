@@ -1,10 +1,18 @@
-<img width="736" height="491" alt="1000027312" src="https://github.com/user-attachments/assets/d6efb31f-d9cf-4244-a1e3-d251f4df2ef7" />
+<img width="575" height="73" alt="1000027541" src="https://github.com/user-attachments/assets/3f3ef2e1-9598-44cf-a72c-ec8507cf6f92" />
+<img width="734" height="452" alt="1000027594" src="https://github.com/user-attachments/assets/cfa5da6c-14b6-412e-b1d7-4b9699171e62" />
+<p align="center"> " 𝑎𝑙𝑡ℎ𝑜𝑢𝑔ℎ 𝑡ℎ𝑒 𝑝𝑎𝑠𝑡 𝑎𝑛𝑑 𝑝𝑟𝑒𝑠𝑒𝑛𝑡 ℎ𝑎𝑣𝑒 𝑚𝑒𝑟𝑔𝑒𝑑 𝑡𝑜𝑔𝑒𝑡ℎ𝑒𝑟, 𝑚𝑦 𝑓𝑢𝑡𝑢𝑟𝑒’𝑠 𝑠𝑡𝑖𝑙𝑙 𝑎 𝑏𝑙𝑢𝑟.. " 
+<img width="426" height="49" alt="1000027588" src="https://github.com/user-attachments/assets/05575f89-0738-477d-bac2-e43dbb7e7896" />
 
-<p align="center"> " 𝘤𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘣𝘦 𝘵𝘩𝘦 𝒍𝒊𝒈𝒉𝒕 𝘮𝘺 𝑿-𝒓𝒂𝒚𝒔 𝘯𝘦𝘦𝘥 . . ? " <img width="20" height="20" alt="1000026451" src="https://github.com/user-attachments/assets/af973f3c-e5a4-4d9f-b7b5-b325ce1c2e83" />
+<p align="center">
+  <a href="https://github.com/DEADINS0MNIA">@DEADINS0MNIA<a/>
+   𝑡ℎ𝑒 𝑚𝑎𝑓𝑢𝑦 𝑢 𝑡ℎ𝑎𝑡 𝑖𝑙𝑜𝑣𝑒 𝑜𝑘
 
+   <img width="3499" height="1003" alt="1000027586" src="https://github.com/user-attachments/assets/1fdb0b27-ed64-4352-b07d-ca66f4b43242" />
 
-this user is a mizumafu yuri obsessed loser
-
-[ʂƚɾαɯραɠҽ](https://rulerofherheart.straw.page/) ★ [αƚαႦσσƙ](https://tangleduplove.atabook.org/) ★ [ρɾσɳσυɳʂ.ραɠҽ](https://en.pronouns.page/@viviena) ★ [ρɾσɳσυɳʂ.ƈƈ](https://pronouns.cc/@dolitamia) ★ [ɾҽɳƚɾყ](https://rentry.co/kaaiyukiichan) ★ [ριɳƚҽɾҽʂƚ](https://pin.it/3tf5T9TGQ) 
-
-![1000026879](https://github.com/user-attachments/assets/d0fba8bd-0c4b-4b47-96ad-f7fba0510ccd)
+<p align="center">
+  <a href="https://tangleduplove.atabook.org/">𝑎𝑡𝑎𝑏𝑜𝑜𝑘<a/> ✦
+  <a href="https://rentry.co/kaaiyukiichan">𝑟𝑒𝑛𝑡𝑟𝑦<a/> ✦
+  <a href="https://pin.it/3tf5T9TGQ">𝑝𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡<a/> ✦
+  <a href="https://rulerofherheart.straw.page">𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒<a/> ✦
+  <a href="https://en.pronouns.page/@viviena">𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠.𝑝𝑎𝑔𝑒<a/> ✦
+  <a href="https://pronouns.cc/@dolitamia">𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠.𝑐𝑐<a/>
